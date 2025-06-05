@@ -3,3 +3,5 @@
 ### e uso esse perfil para compartilhar projetos do p5js 💻
 
 ### uso o alura para fazer meus projetos ⚛️
+
+![](https://tenor.com/pt-BR/view/goku-gif-22344735)
