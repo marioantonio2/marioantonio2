@@ -4,4 +4,4 @@
 
 ### uso o alura para fazer meus projetos ⚛️
 
-![](https://tenor.com/pt-BR/view/goku-gif-22344735)
+![] (https://media1.tenor.com/m/YatYLk3P7u4AAAAC/goku.gif)
